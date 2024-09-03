@@ -9,7 +9,7 @@ The woman sighs and gently places her hand on my chest, I try to move away, but 
 
 I’m clutching at my head, but I manage to sputter out, “The fuck?”
 
-The woman chuckles. “You haven’t seen magic before, have you? I’d bet so, considering you’re an otherworlder,” She glances up at the sky before shaking her head, “The process for language is never pleasant,” Her voice is smooth and angelic, and judging by how she’s looking at me, I believe I have a funny look on my face. She continues, “My name is Allea-” she’s cut off as the bodies I’m lying against begin to shift. As they do she grimaces and turns to yell, “Someone torch this pile! Quick!”
+The woman chuckles. “You haven’t seen magic before, have you? I’d bet so, considering you’re an otherworlder,” She glances up at the sky before shaking her head, “The process for language is never pleasant,” Her voice is smooth and angelic. Judging by how she’s looking at me, I believe I have a funny look on my face. She continues, “My name is Allea-” she’s cut off as the bodies I’m lying against begin to shift. As they do she grimaces and turns to yell, “Someone torch this pile! Quick!”
 
 As she yells she grabs me and pulls me to my feet, I wobble for a few moments, but I start moving as she drags me. As we begin moving the pile I was lying against starts shifting, and loud pops and cracks can be heard. The corpses start to move, but I hear a crack and a ball of fire flies straight into the pile. Chunks of flesh and shards of bone from the pile fly outwards, and the smell of burning skin and hair fills the air. It’s rather disgusting, but… it smells familiar. 
 
@@ -47,5 +47,5 @@ She shakes her head, “Not at the moment, I still need to tend to soldiers, the
 
 I start to walk towards the exit of the tent and speak, “Make sure you don’t overexert yourself and get something to eat.”
 
-She grabs a few vials full of some strange, colorful liquid and chuckles, “Of course, I’m not foolish.”
+She grabs a few vials full of some strange, colorful liquid and chuckles, “Of course, I’m not a fool.”
 
